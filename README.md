@@ -1,0 +1,1 @@
+# redmi-rosy-root-files
